@@ -1,1 +1,1 @@
-# ricerise.github.io
+# Youngchul Sung's Home
